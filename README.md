@@ -1,2 +1,2 @@
 # Intro
-Fauzan Fikhri F. / Geophysics 2017
+Fauzan Fikhri F. (17/411321/PA/17841) / Geophysics 2017 Gadjah Mada University 
